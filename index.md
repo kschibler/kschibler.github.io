@@ -5,6 +5,6 @@ The Big Five for Life, das Konzept der fuenf wichtigsten Dinge in unserem Leben,
 ## meine Big Five For Life
 * Achtsamkeit
 * Neugierig sein
-* Tägliches Workout
+* Taegliches Workout
 * Freue mich auf jeden neuen Tag!
 
