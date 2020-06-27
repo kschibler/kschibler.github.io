@@ -11,3 +11,5 @@ The Big Five for Life, das Konzept der fuenf wichtigsten Dinge in unserem Leben,
 > Das Leben geschieht nicht zufaellig.
 > Es geschied aufgrund von Entscheidungen.
 
+
+<img src="https://media.istockphoto.com/photos/water-pearls-abstract-with-reflection-on-dark-surface-picture-id801815930"/> 
