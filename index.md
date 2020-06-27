@@ -8,3 +8,6 @@ The Big Five for Life, das Konzept der fuenf wichtigsten Dinge in unserem Leben,
 * Taegliches Workout
 * Freue mich auf jeden neuen Tag!
 
+> Das Leben geschieht nicht zufaellig.
+> Es geschied aufgrund von Entscheidungen.
+
